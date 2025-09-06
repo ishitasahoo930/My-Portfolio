@@ -5,4 +5,4 @@
 
 ![image_alt](https://github.com/ishitasahoo930/My-Portfolio/blob/4e404d94b10fcbc78f32e1a1ccc780b9d5001099/Screenshot%202025-09-06%20175441.png)
 
-![image_alt]()
+![image_alt](https://github.com/ishitasahoo930/My-Portfolio/blob/4c06e2bbebf1e7c16ef5cb2c43012d7be64d185d/Screenshot%202025-09-06%20175502.png)
